@@ -1,1 +1,0 @@
-# Gakaxy_HEROLTE_TWRP
